@@ -1,1 +1,1 @@
-# Cuase_Of_Death
+# Cause_Of_Death
